@@ -1,0 +1,2 @@
+# BAMO
+HI ITS ME DO U LOVE ME
